@@ -103,6 +103,7 @@ OpenApp AI is A Revolutionary 2024 Unique AI Tech That Transforms Any Website Ur
   The biggest benefit is that you just need to follow the easy steps we’ve mentioned on the page & be on the right track to use this Unique AI Powered App To Transform Any Website Url, Your Ideas, Keywords, Blogs, Pages & Ecom Store Into Android & IOS Mobile App In Less Than 60 Seconds!
 
 - Is step-by-step training included?
+
   YEAH- OpenApp AI comes with step-by-step video training that makes it simple, easy & guides you through the entire process with no turbulence.
 
 - Do you provide any support?
